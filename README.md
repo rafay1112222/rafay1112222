@@ -1,5 +1,5 @@
 <h1 align="center">Hi 👋, I'm Abdur Rafay</h1>
-<h3 align="center">A passionate frontend developer from Pakistan</h3>
+<h3 align="center">A passionate frontend and backend developer from Pakistan</h3>
 
  <img align="right" width="280" src="https://gomycode.com/wp-content/uploads/2023/09/39998-web-development.gif" alt="rafay1112222" />
 
