@@ -8,7 +8,7 @@
 
 - 💬 Ask me about **Anything you want.**
 
-- 📫 How to reach me **abdurrafay03122889668@gmail.com**
+- 📫 How to reach me **gaznavi2017@gmail.com**
 
 - 📄 Know about my experiences [https://www.canva.com/design/DAF4venpnGg/U2Ydd0Or_r7cqdwaWBVoyg/view?utm_content=DAF4venpnGg&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAF4venpnGg/U2Ydd0Or_r7cqdwaWBVoyg/view?utm_content=DAF4venpnGg&utm_campaign=designshare&utm_medium=link&utm_source=editor)
 
