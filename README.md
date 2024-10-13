@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **gaznavi2017@gmail.com**
 
-- 📄 Know about my experiences [https://www.canva.com/design/DAGHXrJxKG0/r8MOLTErx7VcgkFhBufGQw/view?utm_content=DAGHXrJxKG0&utm_campaign=designshare&utm_medium=link&utm_source=editor](https://www.canva.com/design/DAGHXrJxKG0/r8MOLTErx7VcgkFhBufGQw/view?utm_content=DAGHXrJxKG0&utm_campaign=designshare&utm_medium=link&utm_source=editor)
+- 📄 Know about my experiences [https://www.canva.com/design/DAF4venpnGg/kdKSs7nXocpY-8xgBKFucg/edit?utm_content=DAF4venpnGg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton](https://www.canva.com/design/DAF4venpnGg/kdKSs7nXocpY-8xgBKFucg/edit?utm_content=DAF4venpnGg&utm_campaign=designshare&utm_medium=link2&utm_source=sharebutton)
 
 - ⚡ Fun fact **I think I am good at my work**
 
